@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SomiFan
 - 👀 I’m interested in kpop, hiphop music, poems.
 - 🌱 I’m currently learning ML.
-- 💞️ I’m looking to collaborate on shooting an arrow.
+- 💞️ I’m a hunter of beautiful soul.
 - 📫 How to reach me ...twiter@fanfantheprince
